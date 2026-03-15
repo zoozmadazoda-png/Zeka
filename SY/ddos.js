@@ -18,7 +18,7 @@
  * Instagram : sabir._7718
  * Telegram  : https://t.me/SABIR7718
  * GitHub    : https://github.com/SABIR7718
- * WhatsApp  : +91 73650 85213
+ * WhatsApp  : +20 1103967987 
  *
  * Violations may result in DMCA takedown
  * or termination of the Telegram bot.
